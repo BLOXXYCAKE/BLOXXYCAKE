@@ -17,32 +17,39 @@ hello!! („^ ᴗ ^„)
 <img src="https://lastfm.dedomil.workers.dev/bloxxycake?spin&rainbow" title="scrobbling!!!" width="260px">
 </div>
 
-
-<br><img src="https://64.media.tumblr.com/454f2ed02fe1c55e1f7bcdfd3e5b9604/1b925f9587d95c2b-7d/s500x750/e9e602d3c8de30584185f894371c9a55995a521f.gifv" width="800px">
-
+#
 
 <img src="emote.gif" width="750px"> 
 
 <br>atabook!⠀⠀⠀⠀prns.cc!⠀⠀⠀⠀steam!
 <br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href=" https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
 
-<br><img src="https://64.media.tumblr.com/454f2ed02fe1c55e1f7bcdfd3e5b9604/1b925f9587d95c2b-7d/s500x750/e9e602d3c8de30584185f894371c9a55995a521f.gifv" width="800px">
+#
+
+</div>
+<br><img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="340px">
+
+</div>
+<div align="left">
+  
+<div align="left">
+<div>
+  
+hi this is space to write things if you want uuuhidk
+<br>..........................................
+<br>..........................................
+<br>..........................................
+
 
 <div align="left">
-<ul>
-  <li>lalaalalalaa sentances</li>
-  <li>alallalaal for important</li>
-  <li>lalbaablblaa or general sutff</li>
-</ul>
-  
-<br><img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="center" height="210px">
-
-<details>
+<br><details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
 
-<br>this read.me was made by tesco!⠀⠀⠀⠀⠀⠀⠀⠀inspo from kiz' read.me!
-<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="200px"> 
+<br>this read.me was made by tesco⠀⠀⠀⠀⠀⠀⠀⠀⠀inspo from kiz' read.me
+<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="200px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="30px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="200px">
 
 </details>
 
 <div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px">
+
+</div>
