@@ -1,7 +1,7 @@
 <div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="900px" height="40px">
 
 </div>
-<img src="cruelkingcall.png" align="right" height="210px">
+<img src="Callcardcruelking.png" align="right" height="210px">
 
 </div>
 <div align="center">
@@ -29,14 +29,14 @@ hello!! („^ ᴗ ^„)
 <img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="300px">
 
 </div>
-<div align="left">
+<div align="center">
   
-<div align="left">
+<div align="center">
 <div>
   
-<a href="https://github.com/tescoexp"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750029783957617/noFilter_1.webp?ex=692dd7d1&is=692c8651&hm=d6c9ac2c6acf56a8b97acbd4bbd39df93736fdf2f549d81cfd77b6c5b93aadb0&=&format=webp&width=840&height=840" width="170px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750030715224064/noFilter.webp?ex=692dd7d1&is=692c8651&hm=828f52b053257db1054babf935a509b9e98f7ed6b9777c46d9e0c8e5fecb21d6&=&format=webp&width=840&height=840" width="170px">
+<a href="https://bloxxycakesdni.straw.page/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750029783957617/noFilter_1.webp?ex=692dd7d1&is=692c8651&hm=d6c9ac2c6acf56a8b97acbd4bbd39df93736fdf2f549d81cfd77b6c5b93aadb0&=&format=webp&width=840&height=840" width="120px"><a href="https://bloxxycakesdni2.straw.page/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750030715224064/noFilter.webp?ex=692dd7d1&is=692c8651&hm=828f52b053257db1054babf935a509b9e98f7ed6b9777c46d9e0c8e5fecb21d6&=&format=webp&width=840&height=840" width="120px">
 
-<div align="left">
+<div align="center">
 <br><details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
 
