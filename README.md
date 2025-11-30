@@ -28,7 +28,16 @@ hello!! („^ ᴗ ^„)
 
 <br><img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv" width="800px">
 
+<div align="left">
+pepepepepepepepeeeeeeeeee
+<br>wfgrwwrgr
+  
+<br><img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="center" height="210px">
 
-art credits!...
+<details>
+<summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
+  
 [cruel king drawing 1](https://www.tumblr.com/namnampi/774525678489141248/your-journey-ends-here-chop-chop-time-i-cant?source=share)
 [cruel king drawing 2](https://www.tumblr.com/hryxd/792408664411619328/small-sketches-in-magma-hooray?source=share)
+
+</details>
