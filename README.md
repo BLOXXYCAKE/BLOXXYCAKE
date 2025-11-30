@@ -22,7 +22,7 @@ hello!! („^ ᴗ ^„)
 <img src="emote.gif" width="700px"> 
 
 <br>atabook!⠀⠀⠀⠀prns.cc!⠀⠀⠀⠀steam!
-<br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
+<br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/c5f2f5383d5f2a02258ec6b200d8014f/3f7e61f119584860-38/s100x200/8d6afe915a52cd6cca73c7d72a7e38be7f501682.pnj" width="40px" height="10px"><a href="https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/c5f2f5383d5f2a02258ec6b200d8014f/3f7e61f119584860-38/s100x200/8d6afe915a52cd6cca73c7d72a7e38be7f501682.pnj" width="40px" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
 
 #
 
@@ -41,8 +41,8 @@ hello!! („^ ᴗ ^„)
 <br><details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
 
-<br>made by tesco!⠀⠀⠀⠀⠀⠀⠀⠀inspo: TrueEyeCoreMedkit!
-<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="140px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="30px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="140px">
+<br>⠀⠀⠀⠀made by tesco!⠀⠀⠀⠀inspo: TrueEyeCoreMedkit!
+<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="140px"><img src="https://64.media.tumblr.com/c5f2f5383d5f2a02258ec6b200d8014f/3f7e61f119584860-38/s100x200/8d6afe915a52cd6cca73c7d72a7e38be7f501682.pnj" width="50px" height="10px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="140px">
 </details>
 
 <div align="center">
