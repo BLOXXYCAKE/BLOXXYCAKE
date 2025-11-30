@@ -26,7 +26,7 @@ hello!! („^ ᴗ ^„)
 
 #
 </div>
-<img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="300px">
+<img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="280px">
 
 </div>
 <div align="center">
@@ -48,5 +48,7 @@ hello!! („^ ᴗ ^„)
 </div>
 
 <div align="center">stamps yay!!!!!!!!!!!!!!!!
-<br><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749752322359336/tumblr_e25c446de8de1bf969c4c1d8e03bec39_19c6f0b4_250.webp?ex=692dd78f&is=692c860f&hm=dfa46f3049093dc01c1ca3dbb9e4209a2073d11f02f79b8b404a39676cf8163a&=&animated=true" height="90px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749752834199592/tumblr_ddceb49dababa1a680d296f323a382dc_519fcb34_100.webp?ex=692dd78f&is=692c860f&hm=fd5d61df5a2071e83903122f7f4695f2de33e7663153f89b998b42b4154ff074&=&animated=true" height="90px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749753186517032/tumblr_d42877512cc552e7ef748a74e4b230d2_f8a2ff44_250.webp?ex=692dd78f&is=692c860f&hm=a58d6471dd227b251f27e812338db96a4c9db30be7dd2690355f80ad409eb9bb&=&animated=true" height="90px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749753647894769/tumblr_ce3788883587652b859a0c9a07c9e300_1604a3cd_250.webp?ex=692dd78f&is=692c860f&hm=dadad598b62be6c3f85cf9d6e1ca40995a9fed1120209462079f04b3abe50a78&=&animated=true" height="90px">
-<br><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749754138493152/tumblr_c64ddf0854054ad04dda717a11979292_4ac770d5_250.png?ex=692dd78f&is=692c860f&hm=b18f2c3eda1525bbacfb1dad465120412994bb96689ddc94468db45264cc79b0&=&format=webp&quality=lossless" height="90px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749754440618155/tumblr_c1f8145d97462c9c91902a16c9def54d_262f7ced_250.webp?ex=692dd78f&is=692c860f&hm=c84ed56ed3dd7436adf9368d1ec6c4a69bc3ab0cd8b889bf201a688c59312fd0&=&animated=true" height="90px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444749754960445490/tumblr_773d6c1af769660834ba71de4ed7a6d1_c2a4310e_250.webp?ex=692dd78f&is=692c860f&hm=94b51d243f51d83bab85c1fe73c765b026f51ac313c3947229aa457f8e5b0e9a&=&animated=true4" height="90px">
+  
+<br><img src="airy.gif" height="110px"><img src="azuretime.gif" height="110px"><img src="doom.gif" height="110px"><img src="azurewaw.gif" height="110px">
+<br><img src="dozer.gif" height="110px"><img src="rawr.gif" height="110px"><img src="redguything.gif" height="110px"><img src="sebseb.gif" height="110px">
+<br><img src="thisguy.gif" height="110px"><img src="whateven.gif" height="110px"><img src="cruelking.gif" height="110px" width="230px">
