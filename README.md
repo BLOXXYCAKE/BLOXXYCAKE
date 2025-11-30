@@ -18,26 +18,30 @@ hello!! („^ ᴗ ^„)
 </div>
 
 
-<br><img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv" width="800px">
+<br><img src="https://64.media.tumblr.com/454f2ed02fe1c55e1f7bcdfd3e5b9604/1b925f9587d95c2b-7d/s500x750/e9e602d3c8de30584185f894371c9a55995a521f.gifv" width="800px">
 
 
-<img src="emote.gif" width="600px"> 
+<img src="emote.gif" width="750px"> 
 
 <br>atabook!⠀⠀⠀⠀prns.cc!⠀⠀⠀⠀steam!
 <br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href=" https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
 
-<br><img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv" width="800px">
+<br><img src="https://64.media.tumblr.com/454f2ed02fe1c55e1f7bcdfd3e5b9604/1b925f9587d95c2b-7d/s500x750/e9e602d3c8de30584185f894371c9a55995a521f.gifv" width="800px">
 
 <div align="left">
-pepepepepepepepeeeeeeeeee
-<br>wfgrwwrgr
+<ul>
+  <li>lalaalalalaa sentances</li>
+  <li>alallalaal for important</li>
+  <li>lalbaablblaa or general sutff</li>
+</ul>
   
 <br><img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="center" height="210px">
 
 <details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
   
-[cruel king drawing 1](https://www.tumblr.com/namnampi/774525678489141248/your-journey-ends-here-chop-chop-time-i-cant?source=share)
-[cruel king drawing 2](https://www.tumblr.com/hryxd/792408664411619328/small-sketches-in-magma-hooray?source=share)
+
 
 </details>
+
+<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px">
