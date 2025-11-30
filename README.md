@@ -1,7 +1,7 @@
-<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="900px" height="40px">
+<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px" height="40px">
 
 </div>
-<img src="Callcardcruelking.png" align="right" height="210px">
+<img src="callcard.png" align="right" height="200px">
 
 </div>
 <div align="center">
@@ -14,19 +14,19 @@ hello!! („^ ᴗ ^„)
 <br>4teen ⋆ elliot fictkin <img src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv">
 <br>nonsharing cruel king yume
 
-<img src="https://lastfm.dedomil.workers.dev/bloxxycake?spin&rainbow" title="scrobbling!!!" width="260px">
+<img src="https://lastfm.dedomil.workers.dev/bloxxycake?spin&rainbow" title="scrobbling!!!" width="230px">
 </div>
 
 #
 
-<img src="emote.gif" width="750px"> 
+<img src="emote.gif" width="700px"> 
 
 <br>atabook!⠀⠀⠀⠀prns.cc!⠀⠀⠀⠀steam!
 <br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href=" https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
 
 #
 </div>
-<img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="280px">
+<img src="https://media.discordapp.net/attachments/929770415893643415/1444789623438966804/GIF_20251130_203633_704.gif?ex=692dfcb1&is=692cab31&hm=713d8142a8b321cedb52b2ff45051cd9f01af6429d8ada0e9241db100cf6b786&=&width=1232&height=792" align="right" width="440px">
 
 </div>
 <div align="center">
@@ -40,15 +40,18 @@ hello!! („^ ᴗ ^„)
 <br><details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
 
-<br>this read.me was made by tesco!⠀⠀⠀⠀⠀inspo from TrueEyeCoreMedkit!
-<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="170px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="30px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="170px">
+<br>made by tesco!⠀⠀⠀⠀⠀⠀⠀⠀inspo: TrueEyeCoreMedkit!
+<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="140px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="30px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="140px">
 </details>
 
-<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="900px" height="40px">
+<div align="center">
+<img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width=800px" height="40px">
 </div>
 
 <div align="center">stamps yay!!!!!!!!!!!!!!!!
   
-<br><img src="airy.gif" height="110px"><img src="azuretime.gif" height="110px"><img src="doom.gif" height="110px"><img src="azurewaw.gif" height="110px">
-<br><img src="dozer.gif" height="110px"><img src="rawr.gif" height="110px"><img src="redguything.gif" height="110px"><img src="sebseb.gif" height="110px">
-<br><img src="thisguy.gif" height="110px"><img src="whateven.gif" height="110px"><img src="cruelking.gif" height="110px" width="230px">
+<br><img src="airy.gif" height="110px"><img src="whateven.gif" height="110px">
+<br><img src="azurewaw.gif" height="110px"><img src="https://64.media.tumblr.com/678531058801ae587f0a68307b626798/e6d2b03a28703fde-0c/s100x200/5fbf52c8261d91815c8fb6a524d56866746bd4d8.gifv" height="110px"><img src="yum.gif" height="110px"><img src="azuretime.gif" height="110px"><img src="cruelkingDIES.gif" height="110px"> 
+<br><img src="dozer.gif" height="110px">
+<br><img src="rawr.gif" height="110px"><img src="devesnoli.gif" height="110px"> <img src="redguything.gif" height="110px"><img src="sebseb.gif" height="110px"><img src="cutness.gif" height="110px">
+<br><img src="doom.gif" height="110px"><img src="thisguy.gif" height="110px">
