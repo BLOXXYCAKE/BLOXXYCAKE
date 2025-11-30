@@ -39,8 +39,9 @@ hello!! („^ ᴗ ^„)
 
 <details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
-  
 
+<br>this read.me was made by tesco!⠀⠀⠀⠀⠀⠀⠀⠀inspo from kiz' read.me!
+<br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="200px"> 
 
 </details>
 
