@@ -1,7 +1,7 @@
 <div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px" height="40px">
 
 </div>
-<img src="callcard.png" align="right" height="200px">
+<img src="callcard.png" align="right" height="220px">
 
 </div>
 <div align="center">
@@ -25,8 +25,9 @@ hello!! („^ ᴗ ^„)
 <br><a href="https://bloxxycake.atabook.org/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496958890025/Banana_Split.webp?ex=692d2eee&is=692bdd6e&hm=b65e165f4fccaf1361c14818c234a78e2964a444f27b3c1882e4f46765e8d64f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href=" https://prns.cc/uwbyb"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387498443800696/Witches_Brew.webp?ex=692d2eef&is=692bdd6f&hm=48fd8989c41e2643cfaa964de07bec2ffc6e5292042168a6ec07da76e887a57f&=&format=webp" height="70px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="10px"><a href="https://steamcommunity.com/profiles/76561199847584735/"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444387497386967120/Pumpkin_Pi.webp?ex=692d2eee&is=692bdd6e&hm=5263cba5d51fbcd588e2dc525ed6599626da59651f48a45dae9cdf88eaf38955&=&format=webp" height="70px">
 
 #
+
 </div>
-<img src="https://media.discordapp.net/attachments/929770415893643415/1444789623438966804/GIF_20251130_203633_704.gif?ex=692dfcb1&is=692cab31&hm=713d8142a8b321cedb52b2ff45051cd9f01af6429d8ada0e9241db100cf6b786&=&width=1232&height=792" align="right" width="440px">
+<img src="https://media.discordapp.net/attachments/763807365484642354/1444782610047041708/GIF_20251130_195934_143.gif?ex=692df628&is=692ca4a8&hm=3f90401e1991343fb0a1caeba803f7ad13992c9733a2c2bd3b53f4fb9f3a18ae&=&width=924&height=792" align="right" width="440px">
 
 </div>
 <div align="center">
