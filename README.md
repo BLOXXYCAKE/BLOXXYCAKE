@@ -26,7 +26,7 @@ hello!! („^ ᴗ ^„)
 
 #
 </div>
-<img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="340px">
+<img src="https://64.media.tumblr.com/fc5ccc22a82ee192c35330d22dafc2ff/cc951afecdfa06d2-bc/s400x600/873607bc88acf14719fd89a249ae77418706da7b.gifv" align="right" width="300px">
 
 </div>
 <div align="left">
