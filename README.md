@@ -1,4 +1,4 @@
-<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px">
+<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="900px" height="40px">
 
 </div>
 <img src="cruelkingcall.png" align="right" height="210px">
@@ -34,18 +34,15 @@ hello!! („^ ᴗ ^„)
 <div align="left">
 <div>
   
-hi this is space  to write things  if you want uuuhidk
-<br>fffffffffffffffff fb666 66666666666666 666666h hhhhhh hhhh
-<br>la f l afbjfbalafle e le e el el e eel el el el aeab vh
-<br>ahbgkajgbgb aga g gba je y9e9749bhg ba gggss grgtg
+<a href="https://github.com/tescoexp"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750029783957617/noFilter_1.webp?ex=692dd7d1&is=692c8651&hm=d6c9ac2c6acf56a8b97acbd4bbd39df93736fdf2f549d81cfd77b6c5b93aadb0&=&format=webp&width=840&height=840" width="170px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444750030715224064/noFilter.webp?ex=692dd7d1&is=692c8651&hm=828f52b053257db1054babf935a509b9e98f7ed6b9777c46d9e0c8e5fecb21d6&=&format=webp&width=840&height=840" width="170px">
 
 <div align="left">
 <br><details>
 <summary>credits! <img src="https://64.media.tumblr.com/dc061c1ed9b07d548356105ab32f00bd/3cb074c9d8b9229b-c5/s75x75_c1/5782723dfd08d573716c322573afcc0270cdcfb2.gifv"></summary>
 
-<br>this read.me was made by tesco⠀⠀⠀⠀⠀⠀inspo from kiz' read.me
+<br>this read.me was made by tesco!⠀⠀⠀⠀⠀inspo from TrueEyeCoreMedkit!
 <br><a href="https://github.com/tescoexp"><img src="Screenshot 2025-11-30 172912.png" width="170px"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="30px"><a href="https://github.com/TrueEyeCoreMedkit"><img src="Screenshot 2025-11-30 172838.png" width="170px">
 </details>
 
-<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="800px">
+<div align="center"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366647300329672/tumblr_f6c1b999e3fa36c3f134915a5dc5549b_967d4375_500.webp?ex=692d1b83&is=692bca03&hm=0903bbb964109d2873e94ae50287f83a993f41f02335933774aac6ba9e282a53&=&animated=true" width="900px" height="40px">
 </div>
