@@ -2,7 +2,7 @@
 
 
 </div>
-<img src="https://media.discordapp.net/attachments/1367172363266953326/1444387496103248025/Call_Cruel_King.webp?ex=692d2eee&is=692bdd6e&hm=5d53e1bc3539454734250fff34e252791cbb166528d74032ef75c4a8c1bce19c&=&format=webp" align="right" width="400px"></a>
+<img src="Call_Cruel_King.png" align="right" width="200px">
 
 </div>
 <div align="center">
@@ -17,3 +17,5 @@
 
 <img src="https://lastfm.dedomil.workers.dev/bloxxycake?spin&rainbow" title="scrobbling!!!" width="300px">
 </div>
+
+<br><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366648281792583/tumblr_46b5ad7cd5abcf16b8878327c7446ca7_30eb2137_2048.webp?ex=692d1b83&is=692bca03&hm=c5d51a5964c894ab996aa674f6f6b183738e36bd542ea831f4e97837f9120cc1&=&animated=true" width="300px"><img src="https://media.discordapp.net/attachments/1367172363266953326/1444366648281792583/tumblr_46b5ad7cd5abcf16b8878327c7446ca7_30eb2137_2048.webp?ex=692d1b83&is=692bca03&hm=c5d51a5964c894ab996aa674f6f6b183738e36bd542ea831f4e97837f9120cc1&=&animated=true" width="300px">
