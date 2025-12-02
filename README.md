@@ -11,7 +11,7 @@
   
 hello!! („^ ᴗ ^„)
 <br>elias/elliot! ⋆ pronounflux
-<br>4teen ⋆ elliot fictkin <img src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv">
+<br>4teen ⋆ multifndm fictkin <img src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv">
 <br>nonsharing cruel king yume
 
 <img src="https://lastfm.dedomil.workers.dev/bloxxycake?spin&rainbow" title="scrobbling!!!" width="230px">
