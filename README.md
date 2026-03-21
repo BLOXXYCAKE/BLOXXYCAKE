@@ -67,7 +67,7 @@ i am diagnosed with [adhd](https://adhdresources.carrd.co/). this affects my mem
 
 </details>
 
-<sub> hihi hello dearest friends
+<sub> hihi hello dearest friends!!!! < [@Bootleg-Employer](https://github.com/Bootleg-Employer),[@EternalSugarCookie](https://github.com/EternalSugarCookie),[@holoyuri-luvr](https://github.com/holoyuri-luvr),[@doppelmops](https://github.com/doppelmops),[@ShiorinSha3yu](https://github.com/ShiorinSha3yu),[@VannySTARtree](https://github.com/VannySTARtree),[@toejjam](https://github.com/toejjam) 3
 
 <div align="center"> <sub>stamps yay!!!!!!!!!!!!!!!!</sub>
 
