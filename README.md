@@ -67,7 +67,7 @@ i am diagnosed with [adhd](https://adhdresources.carrd.co/). this affects my mem
 
 </details>
 
-<sub> hihi hello dearest friends [@The-Forest-Syst3m](https://github.com/The-Forest-Syst3m)!!! thank yeww, much love <3 /p . art by @panasonicbf on pinterest </sub>
+<sub> hihi hello dearest friends
 
 <div align="center"> <sub>stamps yay!!!!!!!!!!!!!!!!</sub>
 
