@@ -44,13 +44,17 @@
 
   { do not cover me unless friends
 
+  crowd discomfort
+
+  discomforted by excessive booping unless friends
+
   yumeshipping
 
   selfshipping
 
   kys/kms jokes
 
-  boundries in general }
+  boundries in general if you broke them }
 
   specifically these people dni, and dni if you harass ***anyone*** over ***anything***
 
