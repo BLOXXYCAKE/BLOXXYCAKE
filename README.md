@@ -54,7 +54,7 @@
 
   kys/kms jokes
 
-  boundries in general if you broke them }
+  boundaries in general if you broke them }
 
   specifically these people dni, and dni if you harass ***anyone*** over ***anything***
 
