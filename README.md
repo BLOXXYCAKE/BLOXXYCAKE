@@ -71,6 +71,26 @@ i am diagnosed with [adhd](https://adhdresources.carrd.co/). this affects my mem
 
 </details>
 
+
+
+<details>
+  <summary>where to find me?</summary>
+
+  ﹒ Normally, I am around the bakery! Where all of the roblox community thrives, But there is another roblox area by Caves i rarely go by.
+
+  ﹒ Another place i will be is in Caves. This is when i wanna get away from everyone and have peace, Friends are always allowed to join unless i have 'dniu' in my name. The caves is sorta a comfort place for me since it is quiet and closeted away from all the chaos others commit. 
+
+  ﹒ A small area i will be in is the Welcome Home area, It's because i sometimes like to sit with my cosplays, sonas, ocs && my f/o's in that area. And why? Just because i can. /ref
+
+  ﹒ A big area i will be in is the Hazbin Hotel / HH area , And yes , If you hate Hazbin Hotel , Go ahead && block me. I do not support nor am a supporter of the creator's actions. I simply enjoy it for the shits && giggles and for the appeal of my friends.
+
+  ﹒ But mainly, You will see me chatting my little head off with my friends which are linked below! I LOVE YOU GUYS AHHH TYSM FOR BEING WITH ME AHHH LOVE YOU ALL!!!! /p 
+
+  ﹒ And last but not least, I will be with my beloved partner. [@MAFIAPUP](https://github.com/MAFIAPUP) ilysm mwahwmahwmahwa, He's the bestest thing i could have in my life, ok? ok. I'm glad i met him. Like /gen. Your my perfect puppy boy!! PLEASE GO FOLLOW HIM PRETTY PLEASE WITH A CHERRY ON TOP!!/nf . You can see us with matching skins like twf ( linda x felix , jophie ( jenny x sohpie ), blocktales ( player + calypso, iced tea (cruel king x mayor thanyiel ), jerry && terry, finn mc cool, hatred, kitchen wizard.) , forsaken, ( pizzadebt ( mafioso x elliot ) both of our fictionkins. ), regretevator (pestpoob ( pest x noob) ), && stranger things MY FAVORITE PART AHHH ( tubularcords / chocopup ( me x dustin henderson ) !!!!
+
+  </details>
+
+
 <sub> hihi hello dearest friends!!!! ♡⠀⠀ [@Bootleg-Employer](https://github.com/Bootleg-Employer),[@EternalSugarCookie](https://github.com/EternalSugarCookie),[@holoyuri-luvr](https://github.com/holoyuri-luvr),[@doppelmops](https://github.com/doppelmops),[@ShiorinSha3yu](https://github.com/ShiorinSha3yu),[@VannySTARtree](https://github.com/VannySTARtree),[@Z0mbiedays](https://github.com/Z0mbiedays),[@bloodyteethz](https://github.com/bloodyteethz)[@toejjam](https://github.com/toejjam),[@mephoneX](https://github.com/mephoneX). DM if you wanna be added or removed!
 
 <div align="center"> <sub>stamps yay!!!!!!!!!!!!!!!!</sub>
